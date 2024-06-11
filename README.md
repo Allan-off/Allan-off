@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Allan Miguel
-- 👀 I’m interested in draw and read
+- 👀 I’m interested in play volleyball
 - 🌱 I’m currently learning english
 - 📫 How to reach me: alanmiguel1802@gmail.com
 - 😄 Pronouns: He/Him
